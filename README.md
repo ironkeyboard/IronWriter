@@ -21,5 +21,4 @@ cool new things coming in the future such as
 - congugation of replacements (yeah i dont do english)
 
 ### Wait theres a website?
-*oh yes*
-[check it out here](http://plagiarize.jokepro.dx.am)
+*oh yes*, [check it out here](http://plagiarize.jokepro.dx.am)!
